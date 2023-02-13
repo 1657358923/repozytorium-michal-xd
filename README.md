@@ -6,3 +6,5 @@ zniszczenie
 xdxd 
 
 naprawa
+
+kk
