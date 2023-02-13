@@ -2,3 +2,7 @@
 
 
 zniszczenie
+
+xdxd 
+
+naprawa
