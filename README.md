@@ -6,3 +6,7 @@ zniszczenie
 xdxd 
 
 naprawa
+
+zniszczenie zniszczenie
+
+dx
