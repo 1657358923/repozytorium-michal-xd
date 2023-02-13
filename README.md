@@ -1,1 +1,4 @@
 # repozytorium-michal-xd
+
+
+zniszczenie
