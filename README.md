@@ -10,3 +10,5 @@ naprawa
 zniszczenie zniszczenie
 
 dx
+
+kk
